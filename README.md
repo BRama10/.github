@@ -1,1 +1,1 @@
-Personal views are my own.
+Personal views are my own. Not personally affiliated with the $AIOS token.
