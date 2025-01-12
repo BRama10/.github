@@ -1,3 +1,1 @@
-# .github
-
-(Personal views are my own)
+Personal views are my own.
